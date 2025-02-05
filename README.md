@@ -1,0 +1,2 @@
+# LP_ICT9E_Q3Quiz1_FRANCISCO_AMBER
+my operators
